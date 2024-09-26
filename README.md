@@ -1,2 +1,4 @@
-Cheingjie Shen
-
+Chengjie Shen
+shenche@oregonstate.edu
+yellow
+westlife
